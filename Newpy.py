@@ -1,1 +1,1 @@
-still no idea abt python
+still no idea abt python some idea
